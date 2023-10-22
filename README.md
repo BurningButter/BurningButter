@@ -1,2 +1,2 @@
 Hi, I’m BurningButter!
-If you need to reach me email me at [BurningButter@duck.com](mailto:burningbutter@duck.com?subject=Whats+up+BurningButter!)
+If you need to reach me email me at [BurningButter@protonmail.com](mailto:burningbutter@protonmail.com?subject=Whats+up+BurningButter!)
